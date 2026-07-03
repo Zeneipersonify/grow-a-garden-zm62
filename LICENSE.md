@@ -1,4 +1,4 @@
-#  
+#  grow a garden Script ultimate is the best grow a garden Script, featuring private server access and auto-collect. Safe and powerful for all your
 
 
 
